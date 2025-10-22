@@ -13,4 +13,7 @@ Fom. Bve
       "Volcha Hochesh?":
         Da) Poluchi!
         Inache) Rabotay Bve;
+; el
+Te ra mi su:
+Satori->Bodichitta: PUTT K SVOBODE!
 .
